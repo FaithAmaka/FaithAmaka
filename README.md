@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FaithAmaka
+- 👀 I’m interested in Affilate Marketing, Real Estates, Freelance, & Lastly, Information Communication Technology [I.C.T] Department
+- 🌱 I’m currently learning Information Communication Technology feild of Study
+- 💞️ I’m looking to collaborate on Freelance Email CopyWriting, Digital Marketing. 
+- 📫 How to reach me on WhatSapp @ +2348054470388 
